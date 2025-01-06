@@ -4,7 +4,7 @@
 
 ### 🩷Loving coding, photography, cycling, and cooking.
 
-### 🎯Aiming to learn CS in the US, intended universities: CMU, UWM, UIUC, UNC
+### 🎯Aiming to learn CS in the US, intended universities: CMU, UWM, UIUC, UNC. Intending subfields include cybersecurity, software engineering, and human-computer interaction.
 
 ### 📱You are welcomed to contact and discuss with me: wechat: QuincyZ567
 
